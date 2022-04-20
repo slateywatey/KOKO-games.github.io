@@ -1,2 +1,1 @@
-# KOKO-games.github.io
-Game website made by slayte#7475
+eyerocks mod menu and its not mine just put it in a link for a friend :)
